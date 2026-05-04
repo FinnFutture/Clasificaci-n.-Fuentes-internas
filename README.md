@@ -1,1 +1,2 @@
-# Clasificaci-n.-Fuentes-internas
+# Clasificación.-Fuentes-internas
+La primera distinción que puede establecerse es entre fuentes internas y externas. Las primeras son las que operan dentro del mercado nacional, y cuentan de manera predominante con recursos captados en ese mercado. En cada país, las entidades financieras que actúan en el campo del financiamiento de proyectos son bancos, compañías financieras, etc. varían en sus características institucionales y áreas de operación de acuerdo con las respectivas legislaciones, las políticas de las autoridades económicas y de la banca central y los usos y costumbres del medio.  
